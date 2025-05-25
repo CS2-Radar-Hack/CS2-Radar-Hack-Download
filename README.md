@@ -1,4 +1,4 @@
-# 🕵️‍♂️ CS2 Tactical Radar Pro - Advanced Enemy Intelligence System 2025 🔥  
+# 🕵️‍♂️ CS2 Tactical Radar Pro - Advanced Enemy Intelligence System 🔥  
 
 Transform your CS2 gameplay with our **next-generation Radar Intelligence System** - the most sophisticated enemy tracking solution ever created for Counter-Strike 2. Our revolutionary technology provides unparalleled battlefield awareness while remaining completely invisible to all anti-cheat systems. Whether you're a casual player looking to improve or a competitive veteran aiming for the top ranks, this tool will elevate your game to professional levels overnight!  
 
